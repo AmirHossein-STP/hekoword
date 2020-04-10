@@ -1,4 +1,2 @@
 # hekoword
-koko_one
-bkb
-kukugiugiugig
+777777777777
